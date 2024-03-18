@@ -123,7 +123,107 @@ Be a king, Think not - why be a king when you can be a God.
 
 
 ## Lose Yourself
-Look, if you had, one shot, or one opportunity
+[Intro]
+Look, if you had one shot or one opportunity
+To seize everything you ever wanted in one moment
+Would you capture it or just let it slip?
+Yo
+
+[Verse 1]
+His palms are sweaty, knees weak, arms are heavy
+There's vomit on his sweater already, mom's spaghetti
+He's nervous, but on the surface, he looks calm and ready
+To drop bombs, but he keeps on forgetting
+What he wrote down, the whole crowd goes so loud
+He opens his mouth, but the words won't come out
+He's chokin', how? Everybody's jokin' now
+The clock's run out, time's up, over, blaow
+Snap back to reality, ope, there goes gravity
+Ope, there goes Rabbit, he choked, he's so mad
+But he won't give up that easy, no, he won't have it
+He knows his whole back's to these ropes, it don't matter
+He's dope, he knows that, but he's broke, he's so stagnant
+He knows when he goes back to this mobile home, that's when it's
+Back to the lab again, yo, this old rhapsody
+Better go capture this moment and hope it don't pass him
+
+[Chorus]
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better
+
+[Verse 2]
+His soul's escaping through this hole that is gaping
+This world is mine for the taking, make me king
+As we move toward a new world order
+A normal life is boring, but superstardom's
+Close to post-mortem, it only grows harder
+Homie grows hotter, he blows, it's all over
+These hoes is all on him, coast-to-coast shows
+He's known as the Globetrotter, lonely roads
+God only knows he's grown farther from home, he's no father
+He goes home and barely knows his own daughter
+But hold your nose 'cause here goes the cold water
+These hoes don't want him no mo', he's cold product
+They moved on to the next schmoe who flows
+He nose-dove and sold nada, and so the soap opera
+Is told, it unfolds, I suppose it's old, partner
+But the beat goes on, da-da-dom, da-dom, dah-dah-dah-dah
+
+[Chorus]
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better
+
+[Verse 3]
+No more games, I'ma change what you call rage
+Tear this motherfuckin' roof off like two dogs caged
+I was playin' in the beginning, the mood all changed
+I've been chewed up and spit out and booed off stage
+But I kept rhymin' and stepped right in the next cypher
+Best believe somebody's payin' the Pied Piper
+All the pain inside amplified by the
+Fact that I can't get by with my nine-to-
+Five and I can't provide the right type of life for my family
+'Cause, man, these goddamn food stamps don't buy diapers
+And there's no movie, there's no Mekhi Phifer, this is my life
+And these times are so hard, and it's gettin' even harder
+Tryna feed and water my seed, plus teeter-totter
+Caught up between bein' a father and a prima donna
+Baby-mama drama, screamin' on her, too much for me to wanna
+Stay in one spot, another day of monotony's gotten me
+To the point I'm like a snail, I've got
+To formulate a plot or end up in jail or shot
+Success is my only motherfuckin' option, failure's not
+Mom, I love you, but this trailer's got
+To go, I cannot grow old in Salem's Lot
+So here I go, it's my shot; feet, fail me not
+This may be the only opportunity that I got
+
+[Chorus]
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better lose yourself in the music
+The moment, you own it, you better never let it go (Go)
+You only get one shot, do not miss your chance to blow
+This opportunity comes once in a lifetime, yo
+You better
+[Outro]
+You can do anything you set your mind to, man
 
 
 
@@ -133,3 +233,105 @@ Ugh, you're a monster.
 
 I can swallow a bottle of alcohol and I'll feel like Godzilla, better hit the deck like the card dealer.
 My whole squad's in here, walking around the party across between a zombie apocalypse and big bobby "The Brain" heenan which is probably the same reason I wrestle with mania.
+
+
+## I need a doctor
+
+[Chorus: Skylar Grey]
+I'm about to lose my mind
+You've been gone for so long
+I'm runnin' out of time
+I need a doctor, call me a doctor
+I need a doctor, doctor
+To bring me back to life
+
+[Verse 1: Eminem]
+I told the world, one day I would pay it back
+Say it on tape, and lay it, record it
+So that one day I could play it back
+But I don't even know if I believe it when I'm sayin' that
+Doubts startin' to creep in, every day, it's just so gray and black
+Hope, I just need a ray of that, 'cause no one sees my vision
+When I play it for 'em, they just say it's wack
+But they don't know what dope is
+And I don't know if I was awake or asleep when I wrote this
+All I know is, you came to me when I was at my lowest
+You picked me up, breathed new life in me, I owe my life to you
+But for the life of me, I don't see why you don't see like I do
+But it just dawned on me you lost a son
+Demons fightin' you, it's dark
+Let me turn on the lights and brighten me and enlighten you
+I don't think you realize what you mean to me
+Not the slightest clue
+'Cause me and you were like a crew, I was like your sidekick
+You gon' either wanna fight when I get off this fuckin' mic
+Or you gon' hug me, but I'm outta options
+There's nothin' else I can do 'cause—
+
+[Chorus: Skylar Grey]
+I'm about to lose my mind
+You've been gone for so long
+I'm runnin' out of time
+I need a doctor, call me a doctor
+I need a doctor, doctor
+To bring me back to life
+
+[Verse 2: Eminem]
+It hurts when I see you struggle, you come to me with ideas
+You say they're just pieces, so I'm puzzled
+'Cause the shit I hear is crazy
+But you're either gettin' lazy or you don't believe in you no more
+Seems like your own opinions, not one you can form
+Can't make a decision, you keep questionin' yourself
+Second guessin' and it's almost like you're beggin' for my help
+Like I'm your leader, you're supposed to fuckin' be my mentor
+I can endure no more, I demand you remember who you are
+It was you who believed in me when everyone was tellin' you
+Don't sign me, everyone at the fuckin' label, let's tell the truth
+You risked your career for me, I know it as well as you
+Nobody wanted to fuck with the white boy
+Dre, I'm cryin' in this booth
+You saved my life, now maybe it's my turn to save yours
+But I can never repay you, what you did for me is way more
+But I ain't givin' up faith, and you ain't givin' up on me
+Get up, Dre, I'm dyin', I need you
+Come back, for fuck's sake, 'cause—
+[Chorus: Skylar Grey]
+I'm about to lose my mind
+You've been gone for so long
+I'm runnin' out of time
+I need a doctor, call me a doctor
+I need a doctor, doctor
+To bring me back to life
+Bring me back to life
+Bring me back to life
+I need a doctor, doctor
+To bring me back to life
+
+[Verse 3: Dr. Dre]
+It literally feels like a lifetime ago
+But I still remember the shit like it was just yesterday, though
+You walked in, yellow jump suit, whole room, cracked jokes
+Once you got inside the booth, told you, mic smoke
+Went through friends, some of them I put on, but they just left
+They said they was ridin' to the death
+But where the fuck are they now, now that I need them?
+I don't see none of them, all I see is Slim
+Fuck all you fair-weather friends, all I need is him
+Fuckin' backstabbers
+When the chips were down, you just laughed at us
+Now you 'bout to feel the fuckin' wrath of Aftermath, faggots
+You gon' see us in our lab jackets and ask where the fuck we been?
+You can kiss my indecisive ass crack, maggots
+And the cracker's ass, little cracker jack beat
+Makin' wack math, backwards producers; I'm back, bastards
+One more CD and then I'm packin' up my bags
+And as I'm leavin', I'll guarantee they'll scream:
+"Dre, don't leave us like that, man", 'cause—
+[Chorus: Skylar Grey]
+I'm about to lose my mind
+You've been gone for so long
+I'm runnin' outta time
+I need a doctor, call me a doctor
+I need a doctor, doctor
+To bring me back to life
