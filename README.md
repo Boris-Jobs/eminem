@@ -1,57 +1,57 @@
 ## Rap God
 
-Look, I was gonna go easy on you not to hurt your feelings.
-But I'm only going to get this one chance.
-Something's wrong, I can feel it.
-Just a feeling I've got, like something's about to happen, but I don't know what.
+Look, I was gonna go easy on you not to hurt your feelings.  
+But I'm only going to get this one chance.  
+Something's wrong, I can feel it.  
+Just a feeling I've got, like something's about to happen, but I don't know what.  
 If that means what I think it means, we're in trouble, big trouble.
 And if he is as bananas as you say, I'm not taking any chances.
 You are just what the doc ordered.
 
-I'm beginnin' to feel like a rap god, rap god.
+I'm beginnin' to feel like a rap god, rap god.  
 All my people from the front to the back nod, back nod.
 Now, who thinks their arms are long enough to slap box, slap box?
 They said I rap like a robot so call me rap-bot.
 But for me to rap like a computer must be in my genes.
-I got a laptop in my back pocket, my pen'll go off when I half-cock it.
-Got a fat knot from that rap profit.
+I got a laptop in my back pocket, my pen'll go off when I half-cock it.  
+Got a fat knot from that rap profit.  
 Made a livin' and a killin' off it, ever since Bill Clinton was still in office,
 with Monica Lewinsky feelin' on his nutsack.
 I'm an MC still as honest but as rude and as indecent as all hell.
 Syllables, kill-a-holic (kill 'em all with)
 
-This flippity dippity-hippity hip-pop.
+This flippity dippity-hippity hip-pop.  
 You don't really wanna get into a pissin' match 
 with this rappity brat, packin' a MAC in the back of the Ac' backpack rap crap, yap-yap, yackety-yack.
 And at the exact same time, I attempt these lyrical acrobat stunts while I'm practicin' that I'll still be able to break a motherF table over the back of a couple of faggots and crack it in half.
 
 Only realized it was ironic, I was signed to Aftermath after the fact.
-How could I not blow? All I do is drop F-bombs.
+How could I not blow? All I do is drop F-bombs.  
 Feel my wrath of attack. Rappers are havin' a rough time period, here's a maxi pad.
 It's actually disastrously bad for the wack while I'm masterfully construsting this masterpiece.
 
-Cause I'm beginnin' to feel like a rap god, rap god.
+Cause I'm beginnin' to feel like a rap god, rap god.  
 All my people from the front to the back nod, back nod.
 Now, who thinks their arms are long enough to slap box, slap box?
 Let me show you maintainin' this shit ain't that hard, that hard.
-Everybody want the key and the secret to rap immortality like I have got.
-Well, to be truthful the blueprint's, simply rage and youthful exuberance.
+Everybody want the key and the secret to rap immortality like I have got.  
+Well, to be truthful the blueprint's, simply rage and youthful exuberance.  
 Everybody loves to root for a nuisance, hit the earth like an asteroid did nothing but shoot for the Moon since (Pew!)
 
-MCs get taken to school with this music 'Cause I use it as a vehicle to "bus the rhyme"
+MCs get taken to school with this music 'Cause I use it as a vehicle to "bus the rhyme"  
 Now I lead a new school full of students'
 Me? I'm a product of Rakim, Lakim Shabazz, Pac, N.W.A, Cube, hey Doc, Ren, Yella, Eazy, thank you, they got Slim.
 Inspired enough to one day grow up, blow up and be in a position,
 to meet Run-D.M.C, and induct them into the motherF' rock and
-Roll Hall of Fame even though I'll walk in the church and burst in a ball of flames.
+Roll Hall of Fame even though I'll walk in the church and burst in a ball of flames.  
 Only Hall of Fame I'll be inducted in is the alcohol of fame on the wall of shame.
 You fags think it's all a game, 'til I walk a flock of flames,
 off a plank and, tell me what in the fuck are you thinkin'?
-Little gay-lookin' boy so gay I can barely say it with a straight face, lookin' boy.
+Little gay-lookin' boy so gay I can barely say it with a straight face, lookin' boy.  
 You're witnessin' a mass-occur like you're watching a church gathering take place, lookin' boy.
 "Oy vey, that boy's gay!"- That's all they say, lookin' boy.
-You get a thumbs up, pat on the back and a "way to go" from your label every day, lookin' boy.
-Hey, lookin' boy! What you say, lookin' boy? I get a "hell yeah" from Dre, lookin' boy.
+You get a thumbs up, pat on the back and a "way to go" from your label every day, lookin' boy.  
+Hey, lookin' boy! What you say, lookin' boy? I get a "hell yeah" from Dre, lookin' boy.  
 I'ma work for everything I have, never asked nobody for shit get outta my face, lookin' boy!
 Basically, boy, you're never gonna be capable of keepin' up with the same place. lookin' boy,
 
