@@ -1,6 +1,6 @@
 ## Rap God
 
-[Intro]
+[Intro]  
 "Look, I was gonna go easy on you not to hurt your feelings"  
 "But I'm only going to get this one chance" (Six minutes—, six minutes—)  
 "Something's wrong, I can feel it" (Six minutes, Slim Shady, you're on!)  
@@ -15,7 +15,7 @@ All my people from the front to the back nod, back nod
 Now, who thinks their arms are long enough to slap box, slap box?  
 They said I rap like a robot, so call me Rap-bot  
 
-[Verse 1]
+[Verse 1]  
 But for me to rap like a computer it must be in my genes  
 I got a laptop in my back pocket  
 My pen'll go off when I half-cock it  
@@ -32,6 +32,24 @@ With this rappity brat, packin' a MAC in the back of the Ac'
 Backpack rap crap, yap-yap, yackety-yack  
 And at the exact same time, I attempt these lyrical acrobat stunts while I'm practicin' that  
 I'll still be able to break a motherfuckin' table  
+```python
+"""
+对自己说唱技巧的自信，暗示他能够说唱得像计算机一样流畅和精准
+随时准备好写歌和创作音乐
+将他的笔比作枪械，表示他的创作能力非常强大，只需稍作准备即可发挥出来
+通过说唱赚取了丰厚的利润
+比尔·克林顿总统时期的一起丑闻，即克林顿与实习生莫妮卡·莱温斯基的不正当关系
+作为一个说唱艺术家的态度，保持真诚但也非常直言不讳和粗鲁
+能够用各种押韵和技巧来制造音乐
+说唱音乐的节奏和节奏感
+说唱艺人不要和他对抗，因为他有能力击败他们，甚至暗示他随身携带着枪支
+指那些弱势的说唱音乐
+他在说唱时运用各种技巧和押韵，同时不断进行着练习
+我仍然可以在一群基佬的后面打碎一张该死的桌子，然后把它劈成两半
+
+(他可以轻易地击败那些他认为技艺不如他的说唱艺人，甚至可以在他们的身上施加暴力)
+"""
+```
 Over the back of a couple of faggots and crack it in half  
 Only realized it was ironic, I was signed to Aftermath after the fact  
 How could I not blow? All I do is drop F-bombs  
@@ -53,6 +71,15 @@ Simply rage and youthful exuberance
 Everybody loves to root for a nuisance  
 Hit the Earth like an asteroid  
 Did nothing but shoot for the Moon since (Pew!)  
+```python
+"""
+说唱的构想基于愤怒和年轻的热情
+人们都喜欢支持麻烦制造者
+小行星一样撞击地球，自那时起就一直向月球发射
+
+("Hit the Earth like an asteroid": 这里用隐喻的方式将Eminem的出现比作小行星撞击地球，"did nothing"可以理解为在撞击地球之后，进入了一个状态，即从那时起开始专注于追求成功，而不是指在此之前什么都没有做)
+"""
+```
 MCs get taken to school with this music  
 'Cause I use it as a vehicle to "bus the rhyme"  
 Now I lead a new school full of students  
@@ -81,13 +108,13 @@ Get outta my face, lookin' boy!
 Basically, boy, you're never gonna be capable
 Of keepin' up with the same pace, lookin' boy, 'cause—
 
-[Chorus]
-I'm beginnin' to feel like a Rap God, Rap God
-All my people from the front to the back nod, back nod
-The way I'm racin' around the track, call me NASCAR, NASCAR
-Dale Earnhardt of the trailer park, the White Trash God
-Kneel before General Zod
-This planet's Krypton—no, Asgard, Asgard
+[Chorus]  
+I'm beginnin' to feel like a Rap God, Rap God  
+All my people from the front to the back nod, back nod  
+The way I'm racin' around the track, call me NASCAR, NASCAR  
+Dale Earnhardt of the trailer park, the White Trash God  
+Kneel before General Zod  
+This planet's Krypton—no, Asgard, Asgard  
 
 [Verse 3]
 So you'll be Thor and I'll be Odin
@@ -97,73 +124,88 @@ Immediately with these bombs I'm totin'
 And I should not be woken
 I'm the walkin' dead, but I'm just a talkin' head, a zombie floatin'
 But I got your mom deep-throatin'
-I'm out my Ramen Noodle
-We have nothin' in common, poodle
-I'm a Doberman, pinch yourself in the arm and pay homage, pupil
-It's me, my honesty's brutal
-But it's honestly futile if I don't utilize what I do though
-For good at least once in a while
-So I wanna make sure somewhere in this chicken scratch I scribble and doodle enough rhymes
+I'm out my Ramen Noodle  
+We have nothin' in common, poodle  
+I'm a Doberman, pinch yourself in the arm and pay homage, pupil  
+It's me, my honesty's brutal  
+But it's honestly futile if I don't utilize what I do though   
+For good at least once in a while   
+So I wanna make sure somewhere in this chicken scratch I scribble and doodle enough rhymes  
 To maybe try to help get some people through tough times
-But I gotta keep a few punchlines
-Just in case 'cause even you unsigned
-Rappers are hungry lookin' at me like it's lunchtime
-I know there was a time where once I
-Was king of the underground
+But I gotta keep a few punchlines   
+Just in case 'cause even you unsigned   
+Rappers are hungry lookin' at me like it's lunchtime  
+I know there was a time where once I   
+Was king of the underground  
 But I still rap like I'm on my Pharoahe Monch grind
-So I crunch rhymes, but sometimes when you combine
-Appeal with the skin color of mine
-You get too big and here they come tryin'
-To censor you like that one line
-I said on "I'm Back" from The Mathers LP 1 when I
-Tried to say I'll take seven kids from Columbine
-Put 'em all in a line, add an AK-47, a revolver and a 9
-See if I get away with it now that I ain't as big as I was, but I'm
-Morphin' into an immortal, comin' through the portal
-You're stuck in a time warp from 2004 though
-And I don't know what the fuck that you rhyme for
-You're pointless as Rapunzel with fuckin' cornrows
-You write normal? Fuck being normal!
-And I just bought a new raygun from the future
-Just to come and shoot ya, like when Fabolous made Ray J mad
-'Cause Fab said he looked like a fag at Mayweather's pad
-Singin' to a man while he played piano
-Man, oh man, that was a 24/7 special on the cable channel
-So Ray J went straight to the radio station
-The very next day, "Hey Fab, I'ma kill you!"
-Lyrics comin' at you at supersonic speed (J.J. Fad)
-Uh, summa-lumma, dooma-lumma, you assumin' I'm a human
-What I gotta do to get it through to you? I'm superhuman
-Innovative and I'm made of rubber so that anything you say is ricochetin' off of me and it'll glue to you and
-I'm devastating, more than ever demonstrating
-How to give a motherfuckin' audience a feeling like it's levitating
-Never fading, and I know the haters are forever waiting
-For the day that they can say I fell off, they'll be celebrating
-'Cause I know the way to get 'em motivated
-I make elevating music, you make elevator music
-"Oh, he's too mainstream."
-Well, that's what they do when they get jealous, they confuse it
-"It's not hip-hop, it's pop,"—'cause I found a hella way to fuse it
-With rock, shock rap with Doc
-Throw on "Lose Yourself" and make 'em lose it
-"I don't know how to make songs like that
-I don't know what words to use."
-Let me know when it occurs to you
-While I'm rippin' any one of these verses that versus you
-It's curtains, I'm inadvertently hurtin' you
-How many verses I gotta murder to
-Prove that if you were half as nice, your songs you could sacrifice virgins too?!
-Ugh, school flunky, pill junkie
-But look at the accolades these skills brung me
-Full of myself, but still hungry
-I bully myself 'cause I make me do what I put my mind to
-And I'm a million leagues above you
-Ill when I speak in tongues, but it's still tongue-in-cheek, fuck you
-I'm drunk, so, Satan, take the fucking wheel
-I'ma sleep in the front seat
-Bumpin' Heavy D and the Boyz, still "Chunky but Funky"
-But in my head there's something I can feel tugging and struggling
-Angels fight with devils and here's what they want from me
+So I crunch rhymes, but sometimes when you combine  
+Appeal with the skin color of mine  
+You get too big and here they come tryin'  
+To censor you like that one line  
+I said on "I'm Back" from The Mathers LP 1 when I  
+Tried to say I'll take seven kids from Columbine  
+Put 'em all in a line, add an AK-47, a revolver and a 9  
+See if I get away with it now that I ain't as big as I was, but I'm  
+Morphin' into an immortal, comin' through the portal  
+You're stuck in a time warp from 2004 though  
+And I don't know what the fuck that you rhyme for  
+You're pointless as Rapunzel with fuckin' cornrows   
+You write normal? Fuck being normal!  
+And I just bought a new raygun from the future   
+Just to come and shoot ya, like when Fabolous made Ray J mad  
+'Cause Fab said he looked like a fag at Mayweather's pad  
+Singin' to a man while he played piano  
+Man, oh man, that was a 24/7 special on the cable channel  
+So Ray J went straight to the radio station  
+The very next day, "Hey Fab, I'ma kill you!"  
+Lyrics comin' at you at supersonic speed (J.J. Fad)  
+Uh, summa-lumma, dooma-lumma, you assumin' I'm a human  
+What I gotta do to get it through to you? I'm superhuman  
+Innovative and I'm made of rubber so that anything you say is ricochetin'   off of me and it'll glue to you and  
+I'm devastating, more than ever demonstrating  
+How to give a motherfuckin' audience a feeling like it's levitating  
+Never fading, and I know the haters are forever waiting  
+For the day that they can say I fell off, they'll be celebrating  
+'Cause I know the way to get 'em motivated  
+I make elevating music, you make elevator music   
+"Oh, he's too mainstream."   
+Well, that's what they do when they get jealous, they confuse it  
+"It's not hip-hop, it's pop,"—'cause I found a hella way to fuse it  
+With rock, shock rap with Doc  
+Throw on "Lose Yourself" and make 'em lose it  
+"I don't know how to make songs like that  
+I don't know what words to use."  
+Let me know when it occurs to you  
+While I'm rippin' any one of these verses that versus you  
+It's curtains, I'm inadvertently hurtin' you  
+How many verses I gotta murder to  
+Prove that if you were half as nice, your songs you could sacrifice virgins too?!  
+Ugh, school flunky, pill junkie  
+But look at the accolades these skills brung me  
+Full of myself, but still hungry  
+I bully myself 'cause I make me do what I put my mind to  
+And I'm a million leagues above you  
+Ill when I speak in tongues, but it's still tongue-in-cheek, fuck you  
+I'm drunk, so, Satan, take the fucking wheel  
+I'ma sleep in the front seat  
+Bumpin' Heavy D and the Boyz, still "Chunky but Funky"  
+But in my head there's something I can feel tugging and struggling  
+Angels fight with devils and here's what they want from me  
+```python
+"""
+一个学校里的失败者（school flunky），以及一个药丸成瘾者（pill junkie）
+但他通过自己的技能获得了许多赞誉和成就
+他对自己有自信，但仍然保持着对成功的渴望和追求
+他会自我要求，因为他能够实现自己心中的目标
+认为自己比别人高出许多，是一个非常出色的人物
+暗示了他说唱时的技巧和能力，尽管他的说唱风格充满了技巧性和创造力
+自己喝醉了，所以请撒旦来驾驶车辆，他会在前排睡觉
+他正在听音乐组合Heavy D and the Boyz的音乐，而他自己也仍然保持着那种即使有些粗糙或沉重，但仍然充满活力和魅力的风格
+他内心的挣扎和矛盾，他感觉到天使和恶魔在他心中争斗，他不断思考他们想要从他身上得到什么(暗示了他内心深处的挣扎和不安)
+
+("ill" 在日常用语中通常表示生病或不舒服。但在说唱文化中，特别是在Hip Hop音乐中，"ill" 还有另一种含义，即“表现出色的、高超的、令人印象深刻的”)
+"""
+```
 They're askin' me to eliminate some of the women hate
 But if you take into consideration the bitter hatred
 I have, then you may be a little patient
