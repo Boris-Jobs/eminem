@@ -206,18 +206,18 @@ Angels fight with devils and here's what they want from me
 ("ill" 在日常用语中通常表示生病或不舒服。但在说唱文化中，特别是在Hip Hop音乐中，"ill" 还有另一种含义，即“表现出色的、高超的、令人印象深刻的”)
 """
 ```
-They're askin' me to eliminate some of the women hate
-But if you take into consideration the bitter hatred
-I have, then you may be a little patient
-And more sympathetic to the situation
-And understand the discrimination
-But fuck it, life's handin' you lemons? Make lemonade then!
-But if I can't batter the women
-How the fuck am I supposed to bake 'em a cake then?
-Don't mistake him for Satan
-It's a fatal mistake if you think I need to be overseas and take a vacation
-To trip a broad, and make her fall on her face and
-Don't be a retard—be a king? Think not
+They're askin' me to eliminate some of the women hate  
+But if you take into consideration the bitter hatred  
+I have, then you may be a little patient  
+And more sympathetic to the situation  
+And understand the discrimination  
+But fuck it, life's handin' you lemons? Make lemonade then!  
+But if I can't batter the women  
+How the fuck am I supposed to bake 'em a cake then?  
+Don't mistake him for Satan  
+It's a fatal mistake if you think I need to be overseas and take a vacation  
+To trip a broad, and make her fall on her face and  
+Don't be a retard—be a king? Think not  
 Why be a king when you can be a god?
 
 
