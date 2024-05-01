@@ -32,24 +32,6 @@ With this rappity brat, packin' a MAC in the back of the Ac'
 Backpack rap crap, yap-yap, yackety-yack  
 And at the exact same time, I attempt these lyrical acrobat stunts while I'm practicin' that  
 I'll still be able to break a motherfuckin' table  
-```python
-"""
-对自己说唱技巧的自信，暗示他能够说唱得像计算机一样流畅和精准
-随时准备好写歌和创作音乐
-将他的笔比作枪械，表示他的创作能力非常强大，只需稍作准备即可发挥出来
-通过说唱赚取了丰厚的利润
-比尔·克林顿总统时期的一起丑闻，即克林顿与实习生莫妮卡·莱温斯基的不正当关系
-作为一个说唱艺术家的态度，保持真诚但也非常直言不讳和粗鲁
-能够用各种押韵和技巧来制造音乐
-说唱音乐的节奏和节奏感
-说唱艺人不要和他对抗，因为他有能力击败他们，甚至暗示他随身携带着枪支
-指那些弱势的说唱音乐
-他在说唱时运用各种技巧和押韵，同时不断进行着练习
-我仍然可以在一群基佬的后面打碎一张该死的桌子，然后把它劈成两半
-
-(他可以轻易地击败那些他认为技艺不如他的说唱艺人，甚至可以在他们的身上施加暴力)
-"""
-```
 Over the back of a couple of faggots and crack it in half  
 Only realized it was ironic, I was signed to Aftermath after the fact  
 How could I not blow? All I do is drop F-bombs  
@@ -71,15 +53,6 @@ Simply rage and youthful exuberance
 Everybody loves to root for a nuisance  
 Hit the Earth like an asteroid  
 Did nothing but shoot for the Moon since (Pew!)  
-```python
-"""
-说唱的构想基于愤怒和年轻的热情
-人们都喜欢支持麻烦制造者
-小行星一样撞击地球，自那时起就一直向月球发射
-
-("Hit the Earth like an asteroid": 这里用隐喻的方式将Eminem的出现比作小行星撞击地球，"did nothing"可以理解为在撞击地球之后，进入了一个状态，即从那时起开始专注于追求成功，而不是指在此之前什么都没有做)
-"""
-```
 MCs get taken to school with this music  
 'Cause I use it as a vehicle to "bus the rhyme"  
 Now I lead a new school full of students  
@@ -191,21 +164,6 @@ I'ma sleep in the front seat
 Bumpin' Heavy D and the Boyz, still "Chunky but Funky"  
 But in my head there's something I can feel tugging and struggling  
 Angels fight with devils and here's what they want from me  
-```python
-"""
-一个学校里的失败者（school flunky），以及一个药丸成瘾者（pill junkie）
-但他通过自己的技能获得了许多赞誉和成就
-他对自己有自信，但仍然保持着对成功的渴望和追求
-他会自我要求，因为他能够实现自己心中的目标
-认为自己比别人高出许多，是一个非常出色的人物
-暗示了他说唱时的技巧和能力，尽管他的说唱风格充满了技巧性和创造力
-自己喝醉了，所以请撒旦来驾驶车辆，他会在前排睡觉
-他正在听音乐组合Heavy D and the Boyz的音乐，而他自己也仍然保持着那种即使有些粗糙或沉重，但仍然充满活力和魅力的风格
-他内心的挣扎和矛盾，他感觉到天使和恶魔在他心中争斗，他不断思考他们想要从他身上得到什么(暗示了他内心深处的挣扎和不安)
-
-("ill" 在日常用语中通常表示生病或不舒服。但在说唱文化中，特别是在Hip Hop音乐中，"ill" 还有另一种含义，即“表现出色的、高超的、令人印象深刻的”)
-"""
-```
 They're askin' me to eliminate some of the women hate  
 But if you take into consideration the bitter hatred  
 I have, then you may be a little patient  
