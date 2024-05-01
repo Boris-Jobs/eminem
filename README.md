@@ -161,7 +161,7 @@ The very next day, "Hey Fab, I'ma kill you!"
 Lyrics comin' at you at supersonic speed (J.J. Fad)  
 Uh, summa-lumma, dooma-lumma, you assumin' I'm a human  
 What I gotta do to get it through to you? I'm superhuman  
-Innovative and I'm made of rubber so that anything you say is ricochetin'   off of me and it'll glue to you and  
+Innovative and I'm made of rubber so that anything you say is ricochetin' off of me and it'll glue to you and  
 I'm devastating, more than ever demonstrating  
 How to give a motherfuckin' audience a feeling like it's levitating  
 Never fading, and I know the haters are forever waiting  
