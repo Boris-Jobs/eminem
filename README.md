@@ -284,12 +284,6 @@ You can do anything you set your mind to, man
 
 
 
-## Godzilla
-
-Ugh, you're a monster. 
-
-I can swallow a bottle of alcohol and I'll feel like Godzilla, better hit the deck like the card dealer.
-My whole squad's in here, walking around the party across between a zombie apocalypse and big bobby "The Brain" heenan which is probably the same reason I wrestle with mania.
 
 
 ## I need a doctor
